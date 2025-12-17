@@ -1,0 +1,2 @@
+# Deviceactivationkey
+Wlcome ALl Friends 
